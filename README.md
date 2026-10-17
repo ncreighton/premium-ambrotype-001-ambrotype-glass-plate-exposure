@@ -1,0 +1,2 @@
+# premium-ambrotype-001-ambrotype-glass-plate-exposure
+Stop wasting precious glass plates on inconsistent exposures. Your ambrotype process deserves a record as precise as the art itself.  This Notion template centralizes every variable of your wet plate collodion workflow — from collodion age to developer temperature — so you can replicate successes and troubleshoot failures with confidence. It's the
